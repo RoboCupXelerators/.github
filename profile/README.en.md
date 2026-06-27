@@ -68,7 +68,7 @@ Core tools and directions include:
 
 ## Team Values
 
-说到做到，有话直说，只认功劳，追求极致。
+Do what you say. Speak directly. Credit real contribution. Pursue excellence.
 
 Innovation never stops. Pursue excellence.
 
